@@ -3,4 +3,4 @@ im am Jon Chua, --- LOLOLOL
 Most people call me chua for short.
 CHANGED LOLLLL
 How about now? 
-or now? lolLOLOLOL
+or now? lol
